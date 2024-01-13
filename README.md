@@ -6,3 +6,11 @@
 ---
 
 ### Videos
+
+
+https://github.com/BrijanV/SDM-Robotic-Palm/assets/146171011/deeb824c-c0c2-4a76-a693-f4d272382e98
+
+
+
+https://github.com/BrijanV/SDM-Robotic-Palm/assets/146171011/23809a9b-ac7d-49a6-ad20-7e3b98519ebe
+
